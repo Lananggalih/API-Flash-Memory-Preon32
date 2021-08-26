@@ -1,0 +1,1 @@
+Skirpsi-Lanang-Galih-S
